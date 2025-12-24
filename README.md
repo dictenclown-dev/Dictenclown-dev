@@ -5,6 +5,6 @@
   <!-- Подпись -->
   ㅤ𓋜ㅤᬉㅤ۪ㅤ
   <br>
-  online (      ) afk? ♡ 
+  online (      ) I don't have to answer in my mood!  ♡ 
   <br> 
-
+Sorry sorry
