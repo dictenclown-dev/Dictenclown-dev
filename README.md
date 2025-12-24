@@ -5,9 +5,6 @@
   <!-- Подпись -->
   ㅤ𓋜ㅤᬉㅤ۪ㅤ
   <br>
-  𝑚𝑎𝑦𝑏𝑒 𝑐+ℎ   
-  online (      ) afk? ♡ ⸻‌
-  <br>
-  ⊹ㅤ۪ㅤ𔕱𖹭ׁㅤI'm not looking for anything more than familiarity.
+  online (      ) afk? ♡ 
   <br> 
   tg: https://t.me/MyInfoPonyTownWorld
