@@ -1,4 +1,4 @@
-dictenclown-dev <p align="center" href="https://ibb.co/hF2DvLPP"><img src="https://i.ibb.co/MkPMLZYY/IMG-20251224-085101.png" alt="IMG-20251224-085101" border="0"></a>
+<a href="https://ibb.co/qL9Rnh2R"><img src="https://i.ibb.co/Y48tWJVt/30-20251224085610.png" alt="30-20251224085610" border="0"></a>
 
 <div align="center">
   <br> 
