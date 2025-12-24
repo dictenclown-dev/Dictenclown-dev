@@ -1,16 +1,13 @@
-## Hi there 👋
+dictenclown-dev <p align="center" href="https://ibb.co/hF2DvLPP"><img src="https://i.ibb.co/MkPMLZYY/IMG-20251224-085101.png" alt="IMG-20251224-085101" border="0"></a>
 
-<!--
-**dictenclown-dev/Dictenclown-dev** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<div align="center">
+  <br> 
+  <!-- Подпись -->
+  ㅤ𓋜ㅤᬉㅤ۪ㅤ
+  <br>
+  𝑚𝑎𝑦𝑏𝑒 𝑐+ℎ   
+  online (      ) afk? ♡ ⸻‌
+  <br>
+  ⊹ㅤ۪ㅤ𔕱𖹭ׁㅤI'm not looking for anything more than familiarity.
+  <br> 
+  tg: https://t.me/MyInfoPonyTownWorld
