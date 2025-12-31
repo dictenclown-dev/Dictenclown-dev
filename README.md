@@ -1,5 +1,3 @@
 <div align="center">
- <a href="https://ibb.co/Pzzddhyz"><img src="https://i.ibb.co/FqqFFw1q/32-20251224225037.png" alt="32-20251224225037" border="0"></a>
-<div align="center">
- <a просмотры профиля GitHub](http//komarev.com/ghpvc/?username=dictenclown-dev&label=Просмотры)](https://github.com/dictenclown-dev)
-
+ <a href="https://ibb.co/Y4JVtxZb"><img src="https://i.ibb.co/gbQcDxV6/40-20251231064426.png" alt="40-20251231064426" border="0"></a>
+<a komarev/ghpvc
